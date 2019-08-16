@@ -1,4 +1,4 @@
 Tom Ellis  
 Angelina Jolie  
-Channig Tatum
-Gabriel Match
+Channig Tatum  
+Gabriel Match  
