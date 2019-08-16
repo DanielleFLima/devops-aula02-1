@@ -1,3 +1,3 @@
-Sentimentos são
-Coisas que vem pra ficar
-Eu te devoro
+Sentimentos são  
+Coisas que vem pra ficar  
+Eu te devoro  
